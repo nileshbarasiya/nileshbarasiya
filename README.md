@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 you can reach me on linkdln 
 - 😄 Pronouns: Nilesh 
-- ⚡ Fun fact: I Am well in my work
+- ⚡ Fun fact: I Am well versed in my works
 
 <!---
 nileshbarasiya/nileshbarasiya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
